@@ -6,7 +6,6 @@
 
 https://github.com/Dear-Future/Cooperation
 
-https://www.zhihu.com/people/qing-wen-ni-wen-qing
 
 
 支持数字化转型规划与落地，支持通过实战解决实际问题，支持创新型项目发展，支持信息安全与攻防对抗，支持战略规划与布局，支持人才发掘与培养，支持结果导向！！！
