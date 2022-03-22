@@ -92,10 +92,9 @@ j、从根本上解决企业数字化信息化，花瓶式、中看不中用困�
 
 If you want to know more infomation , blow links may help you !
 
+https://zhuanlan.zhihu.com/p/394435814
 
 https://github.com/Dear-Future/Cooperation
-
-https://zhuanlan.zhihu.com/p/394435814
 
 
 ***********************Provide Global Technical Support ！！！***********************
