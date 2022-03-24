@@ -94,7 +94,9 @@ k、从根本上解决企业数字化信息化智能化，花瓶式、中看不�
 
 If you want to know more infomation , blow links may help you !
 
-https://zhuanlan.zhihu.com/p/394435814
+https://zhuanlan.zhihu.com/p/428293067
+
+https://zhuanlan.zhihu.com/p/428291355
 
 https://github.com/Dear-Future/Cooperation
 
